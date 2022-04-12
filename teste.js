@@ -1,0 +1,12 @@
+edfewfgwegwgew
+dgew
+gw
+gew
+ger
+gersd
+erg
+erg
+rtj
+ytj
+yutkiyu
+kuy
